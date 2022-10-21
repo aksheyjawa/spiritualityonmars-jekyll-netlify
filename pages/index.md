@@ -10,11 +10,9 @@ intro_paragraph: "**Spirituality on Mars (SoM)** is a low-cost and
   poor or rich, atheists or believers, that would help them lead a happy &
   fulfilled life."
 ---
-In other words, SoM is a set of ideas about education, that can form the basis of a new school, university, online or YouTube-based educational initiatives, or even evening, weekend, or summer classes for children. It can also be applied partially in an existing school or a university.\
-\
+In other words, SoM is a set of ideas about education, that can form the basis of a new school, university, online or YouTube-based educational initiatives, or even evening, weekend, or summer classes for children. It can also be applied partially in an existing school or a university.
+
 The SoM-based schools and universities will focus 51% on Spirituality and 49% on Academics.
-
-
 
 **SoM & Spirituality**
 
@@ -22,19 +20,13 @@ SoM's Super-list, which is the list of Character Traits & Habits that are curren
 
 Also, the videos on KIPP, Character Growth Card, and Angela Duckworth, available on my YouTube channel link shared below, are essential to understand SoM's plan. Measurement of SoM's Super-list's character traits in children & youth, using the ideas in these videos, is one of the key components of SoM's plan. But there is a lot more to the spiritual side of SoM that can be revealed right now.
 
-
-
 **F﻿ounder**
 
 I do not see myself as the creator or founder of this work. I am more of a contributor, or perhaps, I can be considered a newspaper boy.
 
-
-
 **Y﻿outube Videos**
 
 Some YouTube videos: https://www.youtube.com/AksheyJawa (link available in the attachment).These videos, especially the 1st playlist "^The most Important Videos", are helping in the development of SoM's non-spiritual side.
-
-
 
 **I﻿nspiration**
 
